@@ -185,6 +185,6 @@ Bebas digunakan untuk keperluan pribadi dan komersial.
 
 ---
 
-**Made with ❤️ for Samuel Musa Adinata**
+**Samuel Musa Adinata**
 
 Terakhir diupdate: Februari 2026
